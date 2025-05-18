@@ -32,7 +32,7 @@ I am a meticulous Data Analyst, I am excel in harnessing data-driven insights to
 ## 📫 Let's Connect
 
 - Email: sourav.it13@gmail.com
-- LinkedIn: https://www.linkedin.com/in/sourav-paul-/
+- LinkedIn: www.linkedin.com/in/sourav-kumar-paul-697442141
 
 
 <!-- Footer Section -->
